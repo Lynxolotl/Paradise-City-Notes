@@ -1,0 +1,4 @@
+OH GOD VANDAL WHAT THE FUCK DID YOU DO?
+WHY THE FUCK ARE WE FIGHTING [[Ansem, Seeker of Darkness]] FROM KNIGDOM HEARTS??
+![[Pasted image 20261017231609.png]]
+![[Pasted image 20261017233509.png]]

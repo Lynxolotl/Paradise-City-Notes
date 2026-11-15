@@ -1,0 +1,1 @@
+Spouse of [[Croquette Coronatus]] 
